@@ -1,0 +1,2 @@
+# Zern-Decentralized-Cryptocurrency-exchange
+Zern is a global crypto exchange that will be located in Kuwait that provides a platform for crypto currencies.  Easy payment for everyone around the world payment , buy with ur Credit Card sell and withdraw straight to ur bank account easy and fast , , store your crypto into ur Safe wallets ,  sell and trade your digital assets easily and securely.  fastest confirmation , Lowest Fees ,
